@@ -36,14 +36,15 @@ something RHYME something cover often just to open eyes
 
 
 MIST fast approaching phat stacks homin' tagged 
+
 fear the BEAST inside poppin' peripherals off  13
-there's one thing i MISSED target track choosing does
-hear them FEAST here's one brag they'll do without yeah
+there's one thing i MISSED target track choosing DOES
+hear them FEAST on one brag they'll do without yeah
 
 HIT and crash this test this is us droppin' bass anew
 - GIVES us wrath, all perspectives wide on ours 
 much too late to catch a DRIFT we've already seen'em close 
-hide in RHYME something cover it up, just not the eyes
+hide in HINTS master covert up, just not the eyes
 cover often just to open eyes
 
 - here goes why? 15
