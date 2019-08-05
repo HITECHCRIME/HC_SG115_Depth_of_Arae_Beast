@@ -43,7 +43,7 @@ hear them FEAST on one brag they'll do without yeah
 
 HIT and crash this test this is us droppin' bass anew
 - GIVES us wrath, all perspectives wide on ours 
-much too late to catch a DRIFT we've already seen'em close 
+much too late to catch a DRIFT we've already seen'em close (?)
 hide in HINTS master covert up, just not the eyes
 cover often just to open eyes
 
