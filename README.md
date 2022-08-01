@@ -186,3 +186,32 @@ MUCH TOO LATE TO CATCH A DRIFT
 WE’VE ALREADY SEEN THEM CLOSE
 HIDE IN HINTS MASTER COVER UP
 JUST NOT THE EYES
+
+/// COMM RELAY ACTIVE_ 
+„Cyberpunk 2077 For Music” 
+@cdpred @cyberpunkgame 
+
+Fellow Operative @blckbrd.ca sharing his thoughts on Hitech Crime Cinematic Narrative Universe Microlabel I’ve been developing for 2 years now. 
+
+Coming from the Helve AVR rogue creative agency or a one man army (whichever version you prefer), Hitech Crime is a longterm endeavour. In its core it is a transmedia metabrand mixing together filmmaking, animation, gamified interactive digital and augmented live experiences, written stories, lore and dark emotional music.
+
+All of my Operatives (creators) and Agents (audience) - people who’ve been with me throughout the years are the ones that are actually making it a reality and I want to thank you for that. It gives credibility to my visions and enforces my purpose.
+
+Stay in contact with the HQ and please do subscribe to our YouTube broadcast platform if you want to become an active part of our semi-fictional universe. 
+
+]|[
+
+
+/// COMM RELAY ACTIVE_ 
+„Cyberpunk 2077 For Music” 
+@cdpred @cyberpunkgame 
+
+Fellow Operative @blckbrd.ca sharing his thoughts on Hitech Crime Cinematic Narrative Universe Microlabel I’ve been developing for 2 years now. 
+
+Coming from the Helve AVR rogue creative agency or a one man army (whichever version you prefer), Hitech Crime is a longterm endeavour. In its core it is a transmedia metabrand mixing together filmmaking, animation, gamified interactive digital and augmented live experiences, written stories, lore and dark emotional music.
+
+All of my Operatives (creators) and Agents (audience) - people who’ve been with me throughout the years are the ones that are actually making it a reality and I want to thank you for that. It gives credibility to my visions and enforces my purpose.
+
+Stay in contact with the HQ and please do subscribe to our YouTube broadcast platform if you want to become an active part of our semi-fictional universe. 
+
+]|[
